@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ferto89.github.io/rsschool-cv/cv
